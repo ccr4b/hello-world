@@ -1,1 +1,1 @@
-Hello world
+Hello Sugar Labs, Kanassanun Namwong!
